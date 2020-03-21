@@ -2,3 +2,4 @@
 
 开发商：[赣州瑞晟置业有限公司](https://xin.baidu.com/company_detail_76711922215229?rq=ef&pd=ee&from=ps){:target="_blank"}
 
+开始记录时间：2020年3月21日
